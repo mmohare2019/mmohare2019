@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @mmohare2019
-- Currently a student at Loyola University Maryland 
